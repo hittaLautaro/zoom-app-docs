@@ -31,4 +31,4 @@ Our application does not knowingly collect information from children under 13. T
 We may update this privacy policy periodically. Changes will be posted on this page with an updated revision date.
 
 ## Contact
-For privacy questions or concerns, contact us at: [your-email@domain.com]
+For privacy questions or concerns, contact us at: 46583537@comunidadort.edu.ar
