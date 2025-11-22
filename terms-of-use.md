@@ -41,4 +41,4 @@ These terms are governed by the laws of [Your Country/State].
 We may modify these terms at any time. Continued use after changes constitutes acceptance of modified terms.
 
 ## Contact
-For questions about these terms, contact: [your-email@domain.com]
+For questions about these terms, contact: 46583537@comunidadort.edu.ar
